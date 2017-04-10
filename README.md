@@ -1,4 +1,4 @@
-在中国，你应该识破欺骗您18年的3个谎言
+在中国，您应该识破欺骗您18年的3个谎言
 
 ◆世纪伪案 自焚骗局：天安门自焚真相
   <a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816712&from=wnel">◆伪火影片◆</a>

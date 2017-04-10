@@ -1,15 +1,15 @@
 在中国，您应该识破欺骗您18年的3个谎言
 
 ◆世纪伪案 自焚骗局：天安门自焚真相
-  <a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816712&from=wnel">◆伪火影片◆</a>
-  <a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F112%2Fmh%2Fpackages%2Fzifen%2F&from=wnel">◆伪火专辑◆</a>
+  <a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816712&from=wnel">1◆伪火影片◆</a>
+  <a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F112%2Fmh%2Fpackages%2Fzifen%2F&from=wnel">2◆伪火专辑◆</a>
    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E4%BC%AA%E7%81%AB.jpg" /></td>
   中共与央视造假
  <a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816697&from=wnel">请点击◆解析1400例◆真相视频</a><br/>
      <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/1400.JPG" /></td>
      ◆四•二五和平上访真相◆感动国人
-  <a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c8166987&from=wnel">◆真相视频◆</a>
-    <a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F112%2Fmh%2Fpackages%2F425%2F&from=wnel">◆真相专辑◆</a>
+  <a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c8166987&from=wnel">1◆真相视频◆</a>
+    <a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F112%2Fmh%2Fpackages%2F425%2F&from=wnel">2◆真相专辑◆</a>
      <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/425.jpg" /></td>
     更多精彩，请看下面
 <table>

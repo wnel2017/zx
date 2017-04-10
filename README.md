@@ -17,7 +17,7 @@
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/ogate2.jpg" /></td>
   </tr>
   <tr>
-    <td align=center>网门固定网址 https://git.io/ogate 请收藏<br/>
+    <td align=center>网门固定网址 https://git.io/ogate 请收藏浏览器<br/>
       推荐谷歌或火狐浏览器<br/>
       国产浏览器会干扰访问<br/>
     </td>

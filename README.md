@@ -6,6 +6,7 @@
    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E4%BC%AA%E7%81%AB.jpg" /></td>
   
   <a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816697&from=wnel">◆解析1400例◆</a><br/>
+     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/1400.JPG" /></td>
   <a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c8166987&from=wnel">◆四•二五上访◆</a><br/>
 <table>
   <tr>

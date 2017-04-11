@@ -33,7 +33,11 @@
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/ogate3.jpg" /></td>
   </tr>
   <tr>
-    <td align=center>网门网址 https://git.io/ogate 请收藏浏览器<br/>
+   <td align=center>◆免费  ◆安全  ◆快速  ◆绿色  ◆高速视频<br/>
+       </td>
+  </tr>
+  <tr>
+   <td align=center>网门网址 https://git.io/ogate 请收藏浏览器<br/>
       推荐谷歌或火狐浏览器<br/>
       国产浏览器会干扰访问<br/>
     </td>
@@ -73,5 +77,4 @@
 请把网址保存在电脑浏览器收藏夹<br/>
 就可随时上《网门》浏览全球精粹资源<br/></td>
   </tr>
-</table>     
-
+</table>    

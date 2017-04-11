@@ -1,6 +1,9 @@
-在中国，您应该识破欺骗您18年的3个谎言
-
-◆世纪伪案 自焚骗局：天安门自焚真相
+<table>
+  <tr>
+<td align=center>在中国，您应该识破欺骗您18年的3个谎言<br/>
+  </tr>
+  <tr>
+<td align=center>◆世纪伪案 自焚骗局：天安门自焚真相<br/>
   <a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816712&from=wnel">1◆伪火影片◆</a><br/>
   <a target="_blank" href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F112%2Fmh%2Fpackages%2Fzifen%2F&from=wnel">2◆伪火专辑◆</a>
    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E4%BC%AA%E7%81%AB.jpg" /></td>

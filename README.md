@@ -11,7 +11,7 @@
 <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E4%BC%AA%E7%81%AB.jpg" /></td>
   </tr>
   <tr>
-<td align=center>◆中共与央视造假<br/>
+<td align=center>◆中共与央视造假：深度黑幕揭秘<br/>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816697&from=wnel">◆解析1400例◆真相视频</a><br/>
   </tr>
   <tr>

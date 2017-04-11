@@ -30,7 +30,7 @@
   <tr><td align=center>▼▼▼更多精彩，请看下面▼▼▼<br/>
   </tr>
   <tr>
-    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/ogate2.jpg" /></td>
+    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/ogate3.jpg" /></td>
   </tr>
   <tr>
     <td align=center>网门网址 https://git.io/ogate 请收藏浏览器<br/>

@@ -11,6 +11,7 @@
 <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E4%BC%AA%E7%81%AB.jpg" /></td>
   </tr>
   <tr>
+      <td align=center>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816697&from=wnel">◆解析1400例◆真相视频：深度揭秘中共与央视造假</a><br/>
  <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F112%2Fmh%2Fpackages%2F1400%2F&from=wnel">◆解析1400例专辑◆全球关于1400例的系列深度报道</a><br/>
   </tr>

@@ -1,6 +1,6 @@
 <table>
   <tr>
-<td align=center>18年来，在中国，您应该识破欺骗您的3个谎言<br/>
+<td align=center>在中国，18年来您应该识破欺骗您的3个谎言<br/>
   </tr>
   <tr>
 <td align=center>◆世纪伪案 自焚骗局：天安门自焚真相<br/>

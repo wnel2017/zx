@@ -1,6 +1,6 @@
 <table>
   <tr>
-    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/huangyan.jpg" /></td>
+    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/huang.jpg" /></td>
   </tr>
   <tr>
 <td align=center>◆世纪伪案  自焚骗局◆天安门自焚真相<br/>

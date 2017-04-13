@@ -33,7 +33,7 @@
   <tr><td align=center>▼▼▼更多精彩，请看下面▼▼▼<br/>
   </tr>
   <tr>
-     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/ogate3.jpg" /></td>
+     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/ogate6.jpg" /></td>
   </tr>
   <tr>
    <td align=center>◆免费  ◆安全  ◆快速  ◆绿色  ◆高速视频<br/>

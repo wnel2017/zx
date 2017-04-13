@@ -15,6 +15,7 @@
       <td align=center>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816697&from=wnel">◆解析1400例视频◆揭秘中共与央视造假</a><br/>
  <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F112%2Fmh%2Fpackages%2F1400%2F&from=wnel">◆解析1400例专辑◆1400例系列深度内幕</a><br/>
+  如打开慢，缓冲稍等或刷新再试即可<br/>
   </tr>
   <tr>
   <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/1400.JPG" /></td>

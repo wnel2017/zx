@@ -1,6 +1,6 @@
 <table>
   <tr>
-<td align=center>在中国，您该识破欺骗您18年的3大谎言<br/>
+    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/huangyan.jpg" /></td>
   </tr>
   <tr>
 <td align=center>◆世纪伪案  自焚骗局◆天安门自焚真相<br/>

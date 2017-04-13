@@ -6,6 +6,7 @@
 <td align=center>◆世纪伪案  自焚骗局◆天安门自焚真相<br/>
   <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816712&from=wnel">◆伪火影片◆荣获51届国际电影节荣誉奖</a><br/>
   <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F112%2Fmh%2Fpackages%2Fzifen%2F&from=wnel">◆伪火专辑◆全球关于伪火系列深度报道</a><br/>
+   如打开慢，缓冲稍等或刷新再试即可<br/>
     </tr>
   <tr>
 <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E4%BC%AA%E7%81%AB.jpg" /></td>

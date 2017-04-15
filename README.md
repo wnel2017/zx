@@ -15,7 +15,7 @@
       <td align=center>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816697&from=wnel">◆解析1400例视频◆揭秘中共与央视造假</a><br/>
  <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F112%2Fmh%2Fpackages%2F1400%2F&from=wnel">◆解析1400例专辑◆1400例系列深度内幕</a><br/>
-  如打开慢，缓冲稍等或刷新<br/>
+如打开慢，缓冲稍等或刷新<br/>
   </tr>
   <tr>
   <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/1400.JPG" /></td>
@@ -23,7 +23,7 @@
   <tr>
   <td align=center>◆四•二五和平上访真相◆感动国人<br/>
   <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816698&from=wnel">◆四•二五真相视频◆</a><br/>
-   如打开慢，缓冲稍等或刷新<br/>
+如打开慢，缓冲稍等或刷新<br/>
   </tr>
   <tr>
      <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/425.jpg" /></td>
@@ -32,7 +32,7 @@
     <td align=center>净土人心，洪传世界，全球嘉奖，造福世人<br/>
     法轮大法给人类带来了新的希望！<br/>
   <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816702&from=wnel">请点击在线观看</a><br/>
-   如打开慢，缓冲稍等或刷新<br/>
+如打开慢，缓冲稍等或刷新<br/>
   </tr>
   <tr>
   <tr><td align=center>▼▼▼更多精彩，请看下面▼▼▼<br/>

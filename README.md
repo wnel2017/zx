@@ -30,7 +30,8 @@
   </tr>
   <tr>
     <td align=center>净土人心，洪传世界，全球嘉奖，造福世人<br/>
-  <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816702&from=wnel">大陆请点击进入动态网址</a><br/>
+    法轮大法给人类带来了新的希望！<br/>
+  <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816702&from=wnel">请点击在线观看</a><br/>
    如打开慢，缓冲稍等或刷新<br/>
   </tr>
   <tr>

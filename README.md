@@ -3,7 +3,7 @@
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/huang.jpg" /></td>
   </tr>
   <tr>
-      <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E4%BC%AA%E7%81%AB.jpg"/></td>
+      <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/新伪-火.jpg"/></td>
   </tr>
   <tr>
 <td align=center>◆世纪伪案  自焚骗局◆天安门自焚真相<br/>

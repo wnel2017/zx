@@ -19,7 +19,7 @@
   </tr>
   <tr>
 <td align=left>◆2017国人翻墙最人气网站<br/>
-◆网门 https://git.io/ogate<br/>
+❤网门 https://git.io/ogate<br/>
 ◆请收藏到手机和电脑浏览器中<br/>
 ◆适合苹果、安卓、平板、电脑<br/>
 ◆其中安卓用户与电脑用户<br/>
@@ -32,7 +32,6 @@
 ◆2017国人翻墙最人气软件网门<br/>
 ◆网门安卓版 <a href="https://raw.githubusercontent.com/ogate/up/master/ogate.apk?og">https://git.io/ogatea</a><br/>
 ◆下载网门安卓版：更快更方便<br/>
-◆https://git.io/vQgTk 本页短网址<br/> 
   </tr>
   <tr>
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/huang.jpg" /></td>
